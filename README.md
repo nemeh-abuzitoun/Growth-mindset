@@ -1,11 +1,25 @@
 # Growth-mindset
 
+
+growth mindset
+
+
 ## What is a growth mindset?
 A growth mindset believes that one’s fundamental abilities can be developed through perseverance and effort; intelligence and talent are simply good starting points. A growth mindset is synonymous with a love of learning.
 
 By contrast, in a fixed mindset, intelligence and talent are seen as fixed traits, suggesting that success comes from these inherent qualities alone, without the need for further development or effort.
 
 Perseverance, gumption traps, and maintaining a growth mindset
+
+How to maintain your gtrowth mindset :
+
+Challenges
+keep try and challange your self with thinks you thought you can not do.
+bstacle
+just focus on the tasks that you have and how satisfied you will be at the end.
+Effort
+think with the effort that you do as a great potintial not every one has and also think more about the fantastic resulit you will achieves.
+
 
 
 1. Challenges
